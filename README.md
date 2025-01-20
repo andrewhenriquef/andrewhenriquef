@@ -1,12 +1,12 @@
 ## Hi there, I'm Andrew 👋
 
-🏢 Currently working at Liber Capital as software engineer
+🏢 Currently working at Pin People as Tech Lead
 
 ⚡ Working in became the best version of myself in all areas
 
 I like 💻, 🥋, 🍺, ☕ and to play 🎮
 
-💬 Ask me about web development, leadership, martial arts, warframe and league of legends strategies
+💬 Ask me about web development, leadership, martial arts and league of legends strategies
 
 ___
 
